@@ -1,2 +1,3 @@
 # hello_talent
-Talented cats are finding that interesting
+Talented cats may find that interesting
+https://www.euronetworldwide.com/products-services/ren-ecosystem/
